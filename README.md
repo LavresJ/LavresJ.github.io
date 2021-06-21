@@ -1,2 +1,2 @@
 # (›´ω`‹ )
-[LarvesJ.github.io](link)
+[https://lavresj.github.io/](link)
